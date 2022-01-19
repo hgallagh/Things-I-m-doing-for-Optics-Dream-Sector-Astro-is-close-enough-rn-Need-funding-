@@ -5,3 +5,4 @@ I do not think that the rigor at my current institution is sufficient so any oth
 The current plan is to make sure that no one marries me and ruins my dreams so I need to wear an engagement ring to ward off any harrassment in the field...it'd be one thing if I was actually respected, but please do not hit on me while in class or working. 
 I do not want kids, they're debt dream ruiners. 
 So dissertation on Optics and Laser Science and Math Modeling in the meantime. 
+I love my research and astrophysics has been great, but reading about interferometers brings me back to my undergrad days at UR. 
